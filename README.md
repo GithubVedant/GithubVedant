@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Fresher<br>I'm Completed my Post graduation in IT
+Motivated IT postgraduate with a Passion for technology and a solid foundation in computer programming and database management. Possesses skills in Python, and SQL, and is a quick learner eager to apply academic knowledge in a professional environment. Seeking an entry-level IT position to contribute to a dynamic and innovative team while continuing to develop professional skills. 
 
 
 ## 🌐 Socials:
